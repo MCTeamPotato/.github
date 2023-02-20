@@ -1,2 +1,2 @@
 ## Hi there 👋
-Here for an optimized Minecraft experience.
+Here for an better Minecraft experience.
