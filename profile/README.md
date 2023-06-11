@@ -1,2 +1,2 @@
 ## Hi there 👋
-Here for an better Minecraft experience.
+_Minecraft is a fertile land, where potatoes thrive, and towering trees take root._
